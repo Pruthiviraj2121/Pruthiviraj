@@ -1,2 +1,0 @@
-# Pruthiviraj
-To learn codes
